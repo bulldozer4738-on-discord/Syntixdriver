@@ -1,5 +1,5 @@
 # Syntixdriver
-Syntix-Cracked-External-Driver-With-Loader
+Syntix-Cracked-Fortnite-External-Driver-With-Loader
 
 bulldozer#4738 on discord
 
