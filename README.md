@@ -9,5 +9,7 @@ Sytix Mapper (Kdmapper):https://cdn.discordapp.com/attachments/86295339688525827
 
 Syntix Pasta Loader:https://cdn.discordapp.com/attachments/862953396885258272/912496364326371368/Syntix_External_UD_protected.exe
 
+My Discord:https://discord.gg/2hr3Sp65wu
+
 Protected with Themedia Lol 
 
